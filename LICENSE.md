@@ -1,1 +1,1 @@
-This is the main repository
+This is property of the Trig bros
