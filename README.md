@@ -1,1 +1,1 @@
-This is the main repository of the Trig bros
+This is the med repository of the Trig bros
